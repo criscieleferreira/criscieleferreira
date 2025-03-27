@@ -34,7 +34,6 @@ LinkedIn: www.linkedin.com/in/crisciele-ferreira-dos-santos-147a1428b
 
 GitHub Repositories: Check out my latest projects below!
 
-Instagram (For Jiu-Jitsu Content 😉): (https://www.instagram.com/criscielebetanza/)
 
 📌 I'm open to collaborations, freelancing, and remote work opportunities. Let's build something awesome together!
 
